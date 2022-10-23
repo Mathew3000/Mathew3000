@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Mathew3000
+- 👀 I’m interested in electronics, software, videogame development
+- 🌱 I’m currently learning how to adult and time manage
+- 💞️ I’m looking to collaborate on: no idea, just ask ;)
+- 📫 How to reach me: Twitter maybe?
